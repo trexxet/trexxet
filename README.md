@@ -1,4 +1,4 @@
-~~I'm a 22 yo geek from Moscow. You are welcome to check my projects below.~~
+~~I'm a 23 yo geek from Moscow. You are welcome to check my projects below.~~
 
 ~~_Konstantin is my second name, don't be confused!_~~
 
